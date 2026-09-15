@@ -31,5 +31,5 @@ Estou em busca da minha **primeira oportunidade formal como Jovem Aprendiz** em 
 
 ### Contato
 
-- E-mail: gomesdesouzalucas150@gmail.com
+- E-mail: azuospy.dev@gmail.com
 - Localização: Juiz de Fora/MG · disponível para home office
